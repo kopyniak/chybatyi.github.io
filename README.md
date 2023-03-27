@@ -1,1 +1,1 @@
-# chubatyi.github.io
+# chybatyi.github.io
